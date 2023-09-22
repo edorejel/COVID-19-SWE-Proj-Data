@@ -120,10 +120,7 @@ __Terminology in Question__
 - Biden: Trump has left US unprepared to respond to epidemic https://thehill.com/policy/healthcare/480095-biden-trump-is-worst-possible-person-to-deal-with-coronavirus-outbreak
 
 - - __HAPPENING: PENNSYLVANIA SUPREME COURT JUST LEGALIZED MAIL-IN VOTER FRAUD__
-- - __From the 4chan link:__ Pennsylvania Supreme Court Rules Counties Can't Reject Mail-In Ballots When Signatures Don't Match
-- - All the DNC has to do now is get the database of registered voters and use an insider in the election offices to get the checklist of who's voted. Then mail in ballots for - - those who haven't voted and sign their names, and it's illegal for the vote counters to reject the ballot based on the forged signature. 
-- - https://boards.4chan.org/pol/thread/284499265
-- - (*Why exactly doesn't the U.S. have voter id?*)
+- - - - (*Why exactly doesn't the U.S. have voter id?*)
 
 - - __The Laptop From Hell__ (*This is good movie title for a short film, maybe a Youtube mini-series.*)
 - - When was it suspected that foreign hostile nations had copies of Hunter Biden's laptop and a detailed personality profile on him and his alleged habits?
@@ -135,7 +132,6 @@ __Terminology in Question__
 
 
 - __Joe Biden Out of Nowhere Tweet About Pandemics on 10.24.2019__
-- https://boards.4chan.org/pol/thread/284742726 Tweet is from last year
 - None of these 195 countries — the U.S. included — is fully prepared for a pandemic, report says https://www.washingtonpost.com/health/2019/10/24/none-these-countries-us-included-is-fully-prepared-pandemic-report-says/
 - https://twitter.com/washingtonpost/status/1187386520837246976 
 - It is only a pandemic because China let it happen. There is no other excuse. So in that regard, China showed bad leadership.
