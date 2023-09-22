@@ -126,7 +126,7 @@ __Terminology in Question__
 - - When was it suspected that foreign hostile nations had copies of Hunter Biden's laptop and a detailed personality profile on him and his alleged habits?
 
 - - __Fine People Hoax__
-- - Scott Adams: Brain-Dead Race Hoaxer Joe Biden Is The Biggest Asshole In America https://www.realclearpolitics.com/video/2020/08/21/scott_adams_brain-dead_race_hoaxer_joe_biden_is_the_biggest_asshole_in_america.html
+- - Scott Adams: Brain-Dead Race Hoaxer Joe Biden Is The Biggest ******* In America https://www.realclearpolitics.com/video/2020/08/21/scott_adams_brain-dead_race_hoaxer_joe_biden_is_the_biggest_asshole_in_america.html
 - - Joe Biden Continues to Perpetuate ‘Fine People Hoax’ https://medium.com/australians-news/joe-biden-continues-to-perpetuate-fine-people-hoax-cb789912b553 
 - - (*Continually spreading the "fine people hoax" was part of the operation. Joe Biden didn't care if it was incorrect or it had been debunked. He knew the mainstream media would not question anything he would say because they were working to help him get elected.*)
 
