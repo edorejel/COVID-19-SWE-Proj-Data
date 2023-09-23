@@ -2,4 +2,4 @@
 
 My COVID-19 Software Engineering Projects and Data
 
-My notes are from the 2020 timeframe.
+My COVID-19 "notes" from the 2020 timeframe are found here: [https://github.com/covid-cure](https://github.com/covid-cure).
